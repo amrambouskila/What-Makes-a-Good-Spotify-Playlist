@@ -1,1 +1,1 @@
-# What-makes-a-good-playlist-
+# What-Makes-a-Good-Spotify-Playlist
